@@ -1,2 +1,2 @@
-# first beliaeva liubov
+# first
 I'm in shock
